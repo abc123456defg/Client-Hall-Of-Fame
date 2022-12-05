@@ -7,5 +7,9 @@ After the source for that client was leaked by Hello_SW he created Haptic. Hapti
 
 ## Phoenix Haven
 Average paster, claims pasting LB isnt pasting because its open source. Groomed a femboy (coinful) 💀
+
+### Funnis
+![image](https://user-images.githubusercontent.com/93102482/205672425-0853cbf0-b427-4fdf-9243-86647b8e6788.png)
+![image](https://user-images.githubusercontent.com/93102482/205672458-4b1f619b-2cf5-4648-ae95-75bb485088b0.png)
 ![image](https://user-images.githubusercontent.com/93102482/205672225-c9e8059d-4ec6-4b2f-976b-b49867d5118b.png)
 
