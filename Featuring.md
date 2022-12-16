@@ -21,3 +21,6 @@ Pasted client, intent base + 1000 other sources he frankensteined together to cr
 
 ![image](https://user-images.githubusercontent.com/93102482/208136399-143aa15b-91dd-47ba-aee1-7ee57b34a71c.png)
 
+## JXY
+Skidded tenacity (SHOCKER)
+Larps about being a woman which is why everyone defends him. Can't stop pasting, average intent base skid.
