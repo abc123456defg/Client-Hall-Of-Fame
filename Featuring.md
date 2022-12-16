@@ -13,3 +13,7 @@ Average paster, claims pasting LB isnt pasting because its open source. Groomed 
 ![image](https://user-images.githubusercontent.com/93102482/205672458-4b1f619b-2cf5-4648-ae95-75bb485088b0.png)
 ![image](https://user-images.githubusercontent.com/93102482/205672225-c9e8059d-4ec6-4b2f-976b-b49867d5118b.png)
 
+## LCA_MODZ
+Pasted client, intent base + 1000 other sources he frankensteined together to create his client. To be fair his client is free and does not dispute it being skidded. Notable things pasted from
+> Everything
+> Everything else
