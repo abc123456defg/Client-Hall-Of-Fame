@@ -25,3 +25,11 @@ Pasted client, intent base + 1000 other sources he frankensteined together to cr
 Skidded tenacity (SHOCKER)
 
 Larps about being a woman which is why everyone defends him. Can't stop pasting, average intent base skid.
+
+## Flashy / Jinthiun:
+Pasting methods from LB 💀
+Pasting methods from JigSaw 💀
+Search up one of their utils on github and 60 older clients show up ☠️
+Pasting from so much more
+Stealing ideas from Tena
+
