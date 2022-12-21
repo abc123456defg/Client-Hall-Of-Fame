@@ -1,4 +1,4 @@
 # Client-Hall-Of-Fame
-Hall of fame for the worst src seen in src leaks ever.
+Hall of embarrassing src leaks.
 
 Every client here is skidded / pasted.
