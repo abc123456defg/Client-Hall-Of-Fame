@@ -29,8 +29,12 @@ Larps about being a woman which is why everyone defends him. Can't stop pasting,
 ## Flashy / Jinthiun:
 ### In reference to Pulsive 5.0 src leak
 Pasting methods from LB 💀
+![image](https://user-images.githubusercontent.com/93102482/208989225-ac58bb05-4884-4418-8d50-7648e768a082.png)
+
 Pasting methods from JigSaw 💀
-Search up one of their utils on github and 60 older clients show up ☠️
+![image](https://user-images.githubusercontent.com/93102482/208947089-560c2106-c476-43fe-b64d-3303a66a4a2d.png)
+
+Search up any one of their utils methods on github and 60 older clients show up ☠️
 Pasting from so much more
 Stealing ideas from Tena
 
