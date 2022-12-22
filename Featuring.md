@@ -30,11 +30,13 @@ Proof A: Intent Based
 Do you think someone who can't even make their own base knows how to make things like shaders or a clickgui or even how to draw a rectangle lol?
 
 Proof B: Pasted Font Renderer
+
 .
 ![image](https://user-images.githubusercontent.com/93102482/209030284-40599be6-d3c8-43e1-952b-c5e8eecce290.png)
 
 Proof C: 
 .
+
 ![image](https://user-images.githubusercontent.com/93102482/209030810-9996c6af-8728-482e-b234-8f31282ac25d.png)
 LMFAOOOO LMFAOOO LMFAOOO
 They are all the exact same this guy literally has no java knowledge.
@@ -50,11 +52,13 @@ I dont care to provide anymore so Betapacket if you still dont believe its paste
 
 
 Proof Funny: 
+
 .
 ![image](https://user-images.githubusercontent.com/93102482/209030358-d2927818-21af-4457-8862-98968c764953.png)
 Lol
 
 These are just funni
+
 .
 ![image](https://user-images.githubusercontent.com/93102482/208136399-143aa15b-91dd-47ba-aee1-7ee57b34a71c.png)
 
